@@ -1,6 +1,6 @@
-### Apk Link: https://drive.google.com/file/d/1dj62U1yG16-nWiiJnjU_iD6aB7UB7rFA/view?usp=sharing
+### Apk Link: https://drive.google.com/file/d/1F9C24wqRYji7hglCi7zaL0-TBQkFPSiU/view?usp=sharing
 
-### Video Preview: https://drive.google.com/file/d/1hOxusPDyPMUbY4s3QvaiFFQP2dJoqt7l/view?usp=sharing
+### Video Preview: https://drive.google.com/file/d/1dj62U1yG16-nWiiJnjU_iD6aB7UB7rFA/view?usp=sharing
 
 #### Sorry about the background noise in the video
 
